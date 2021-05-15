@@ -1,2 +1,3 @@
 # Amity-University-MBA-Project-Report
 AMITY Project Report | Amity Online Project | Amity University MBA Project Report  Get ALL University Amity Solved Assignment  ALL University amity Solved Synopsis &amp; Project report-Amity Solved Assignment Projects, Dissertation| Solved Projects Get solved assignments and project report Customized 100% Plagiarism Free Work We provide all types of Assignments and project work with (summary, guide certificate, plagiarism report,  viva) ALL COURSES MBA, BBA, PGDM, BCA, MCA, Bsc-IT, etc. At a very affordable price. Feel free to contact me anytime  +91-9318466686 Message or call  me to discuss your paper and price in the following details
+https://www.studylivezone.in/amity-solved-synopsis-amity-assignment-projects/
